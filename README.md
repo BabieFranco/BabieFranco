@@ -28,7 +28,7 @@ $\color{#b23427}{\textsf{Hypersexual ㅤ++. ㅤPsychotic}}$<br>
 
 <img src="https://files.catbox.moe/2z92v0.webp" width="500" alt="div">
 
-<a href="LINK HERE"><img src="https://files.catbox.moe/nz257o.png" width="80" alt="icon"></a> <a href="LINK HERE"><img src="https://files.catbox.moe/pezpxu.png" width="80" alt=" icon"></a> <a href="LINK HERE"><img src="https://files.catbox.moe/uu74d5.png" width="80" alt=" icon"></a>
+<a href="https://babyfranco.straw.page/"><img src="https://files.catbox.moe/nz257o.png" width="80" alt="icon"></a> <a href="https://rentry.co/BabyFranco"><img src="https://files.catbox.moe/pezpxu.png" width="80" alt=" icon"></a> <a href="https://guns.lol/babyfranco"><img src="https://files.catbox.moe/uu74d5.png" width="80" alt=" icon"></a>
 
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
