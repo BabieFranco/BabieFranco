@@ -1,8 +1,6 @@
 
 <div align="center">
 
-<img src="https://files.catbox.moe/aa20cy.png" alt="div">
-
 ![🍼](https://komarev.com/ghpvc/?username=6InchesIn&color=b23427&label=🍼&style=plastic)
 <br>
 <img src="https://files.catbox.moe/56dv4d.png" width=500 align="left" alt="franco">
