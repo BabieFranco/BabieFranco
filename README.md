@@ -13,7 +13,7 @@
       <td>
         <br>
 $\color{#b23427}{\textsf{Franco ノ Baby ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎He ノ Itノ baby}}$<br>
-$\color{#b23427}{\textsf{Happily Taken!‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ILMBOYFRIENDS!!!!}}$<br>
+$\color{#b23427}{\textsf{Happily Taken!‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ILMBOYFRIEND!!!!}}$<br>
 $\color{#b23427}{\textsf{Atheistic Satanist‎‎ ‎ ‎ ‎‎ ‎ ‎INTJ-T+engrm8}}$<br>
 $\color{#b23427}{\textsf{Proship ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ Darkfic‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎  Peacefic}}$<br>
 $\color{#b23427}{\textsf{Sadomasochist ㅤ Asocial+Aplatonic}}$<br>
