@@ -7,6 +7,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=o53itqkavcf4yo4ou5kliv7hd&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a90404&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![gif](https://files.catbox.moe/c4fitn.gif)
+![gif](https://files.catbox.moe/9i7fca.gif)
 
 ###### ❝ I can't help bein' a romantic ❞
