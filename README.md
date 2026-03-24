@@ -2,7 +2,6 @@
   
 ![⚰️🕊️](https://komarev.com/ghpvc/?username=BabieFranco&color=96a77c&labelcolor=4c5237)
 
-###### ┈　[My Coyle](https://github.com/k9coyle)　𓈒　![](https://files.catbox.moe/rimdkt.webp)　ꞌꞋ ࣪
 ######  ࣪ Ꞌꞌ  　𓈒　 [My Chris](https://github.com/Welcome2Paradise) ┈
 
 ![](https://files.catbox.moe/ikbq5d.png)
